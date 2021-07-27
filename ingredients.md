@@ -1,0 +1,1 @@
+milk 1-cup, icecubes-4, 3scoops of chocolate icecream, sugar-1 tbsp, coco powder-1 tbsp, chocolate syrup 
